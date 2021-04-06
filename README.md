@@ -1,1 +1,1 @@
-This website is to show that 
+This website is for Kellogg students who want to learn more about the vaccines available to them.
